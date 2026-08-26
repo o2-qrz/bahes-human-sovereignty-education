@@ -21,6 +21,8 @@ The Cognitive Compression Loop (2 Hours/Day): Interaction within an isolated "S
 The Autonomous Practical Development Loop (10 Hours/Day): The liberated fund of time (80% of the daily budget) is redirected toward biological regeneration and the physical verification of knowledge. 
 
 To be continued…
+
+*********
 The Historical Evolution of American Education:
 
 [ PERIOD 1: UNTIL THE END OF THE 19TH CENTURY (THE GOLDEN AGE) ] ───> 100% Homeschooling / Community Learning.
@@ -65,3 +67,8 @@ The assault lasted a long time, and finally, the last American state completely 
 Historical Verifier: The 1993 American precedent as the tipping point for the full legalization of home sovereign momentum ("nakat").
 
 Philosophical Basis: A return from Rockefeller’s factory Prussian
+
+
+
+*********
+To be continued…
