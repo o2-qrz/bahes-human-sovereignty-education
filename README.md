@@ -25,12 +25,12 @@ The Cognitive Compression Loop (2 Hours/Day): Interaction within an isolated "S
 *********
 
 
-The Autonomous Practical Development Loop (10 Hours/Day): The liberated fund of time (80% of the daily budget) is redirected toward biological regeneration and the physical verification of knowledge. Theory is seamlessly anchored to
+The Autonomous Practical Development Loop (10 Hours/Day): The liberated fund of time (80% of the daily budget) is redirected toward biological regeneration and the physical verification of knowledge.
 
 *****
 
 
-[ PERIOD 1: UNTIL THE END OF THE 19TH CENTURY (THE GOLDEN AGE) ] ───> 100% Homeschooling / Community Learning. │ ▼ (Introduction of the Prussian barracks) +-------------------------------------------------------------------------------------------------------+ | PERIOD 2: 20TH CENTURY (STATE MONOPOLY AND PRESSURE) | | - 1852: Massachusetts becomes the first to introduce a mandatory attendance law for factory schools. | | - By 1918: All states clamp down on children. Homeschooling is declared OUTLAWED. | +-------------------------------------------------------------------------------------------------------+ │ ▼ (Sovereignty Explosion / John Holt) +-------------------------------------------------------------------------------------------------------+ | PERIOD 3: 1970s–1990s (BREAKOUT FROM THE MATRIX) | | - Court battles of Christian communities and Nerds. Legalization in all 50 states by 1993. | | - Our thirteenth repository is grounded upon this victory of freedom. | +-------------------------------------------------------------------------------------------------------+ 
+-------------------------------------------+ 
 
 
 
